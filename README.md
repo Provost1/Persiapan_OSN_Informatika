@@ -1,1 +1,1 @@
-# Persiapan_OSN
+# Persiapan_OSN_Informatika
